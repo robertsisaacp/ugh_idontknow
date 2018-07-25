@@ -4,3 +4,5 @@
 
 Frankie: "Milo, you're fat! Please chase me, so you can feel how fat you are."
 
+Milo: "I'm too lazy." 
+
